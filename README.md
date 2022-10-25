@@ -1,0 +1,5 @@
+-  Yo, I'm Cyn
+-  I’m interested in Marine Biology and Chinese Culture
+-  I’m currently learning Coding Basics
+-  I’m looking to collaborate on simple projects that doesn't require advanced knowledge in coding and maybe basic video games :)
+- How to reach me : ckmcc120@learner.dvusd.org or crkmccann4@gmail.com
